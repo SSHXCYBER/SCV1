@@ -1,5 +1,5 @@
          ================================
-              Script From SSHXCYBER
+            Script yang dikumpulkan!!! 
          ================================
       
     
